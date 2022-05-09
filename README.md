@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @AnikHazra
+- 🌱 I’m currently learning Html and c++ and PHP...
+- 💞️ MY YOUTUBE CHANNEL LINK (LastGuy): https://www.youtube.com/channel/UCYqux1ghsG84WWpHRPcskRA
+- 📫 My FaceBook ID (Anik Hazra) : https://www.facebook.com/anik.hazra.33
+-  Thanks for Follow Me
+- If You Want Any Help Contact Me On  (Gamil) - anikhazra@gmail.com
